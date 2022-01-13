@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @magicarpe-Diem
+- 👀 I’m interested in a lot of things unfortunately
+- 🌱 I’m currently learning the basics of coding
+- 📫 Reach me at 602-541-1026
